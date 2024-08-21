@@ -2,20 +2,20 @@ PARCIAL 2- Sofia Molano Martínez
 
 EJERCICIO 1
 
-![image](https://github.com/user-attachments/assets/bbbb61b7-d14e-43db-b9d3-9bca5b125ef7)
+![image](https://github.com/user-attachments/assets/236a36c9-0d7e-4e71-84d0-2d0398d57393)
 
 EJERCICIO 2
 
-![image](https://github.com/user-attachments/assets/26a5c902-fd22-4a96-9538-b0a28253a096)
+![image](https://github.com/user-attachments/assets/f3298154-2473-4168-b96a-db4aae7729fc)
 
 EJERCICIO 3
 
-![image](https://github.com/user-attachments/assets/1b49510b-006e-4000-92fd-b782bdf7b3a3)
+![image](https://github.com/user-attachments/assets/67f5bbc1-e9b6-41ef-900b-8e4f638675e6)
 
 EJERCICIO 4
 
-![image](https://github.com/user-attachments/assets/5643f5b8-5bef-4eb2-ab94-9b0df21c4933)
+![image](https://github.com/user-attachments/assets/ec78fc39-dd9e-4b17-893f-b49728903b54)
 
 EJERCICIO 5
 
-![image](https://github.com/user-attachments/assets/393c8b58-0da5-4b99-ae51-74aded824bcd)
+![image](https://github.com/user-attachments/assets/852ff3b3-d3d1-4351-af92-1b1ab022ba50)
