@@ -1,4 +1,4 @@
-PARCIAL CORREGIDO 2- Sofia Molano Martínez
+PARCIAL CORREGIDO - Sofia Molano Martínez
 
 EJERCICIO 1
 
